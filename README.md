@@ -1,7 +1,7 @@
 ### Best Smart Voice Chat Music Robot For Telegram Groups ...
 
 
-<p align="center"><a href="https://t.me/ALLF_BAN"><img src="https://te.legra.ph/file/85954f386aa7195ef3dc4.jpg"></a></p>
+<p align="center"><a href="https://t.me/ALLF_BAN"><img src="https://te.legra.ph/file/278a936b7f3dc594aba91.jpg"></a></p>
 
 
 
@@ -26,4 +26,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![Aditya Halder](https://te.legra.ph/file/85954f386aa7195ef3dc4.jpg)](https://t.me/ALLF_BAN)
+[![Sushil Halder](https://te.legra.ph/file/85954f386aa7195ef3dc4.jpg)](https://t.me/ALLF_BAN)
