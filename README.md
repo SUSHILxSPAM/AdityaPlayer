@@ -26,4 +26,4 @@
 #### Copy Pasters You Can Copy This But Must Give Credits ...
 
 ### Owner Of This Repository
-[![Sushil Halder](https://te.legra.ph/file/85954f386aa7195ef3dc4.jpg)](https://t.me/ALLF_BAN)
+[![Sushil Halder](https://te.legra.ph/file/85954f386aa7195ef3dc4.jpg)](https://t.me/Sushil8xop)
